@@ -2,8 +2,8 @@
 - 👀 I’m interested in AI
 - 🌱 I’m currently learning new technology
 - 💞️ I’m looking to collaborate on blogs
-- 📫 How to reach me [...](https://fxbasket.blogspot.com/)
-- 😄 Pronouns: ...
+- 📫 How to reach me [Forex Basket](https://fxbasket.blogspot.com/) 
+- 😄 Pronouns: [Forex Ipucu](https://forexipucu.blogspot.com/)
 - ⚡ Fun fact: ...
 
 <!---
